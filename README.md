@@ -1,0 +1,1 @@
+# persamaan-dasar-akuntansi
